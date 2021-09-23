@@ -1,3 +1,0 @@
-# doctor-nekschot-licence-to-kill
-
-bemoeizorg at work ® 2002-2021
